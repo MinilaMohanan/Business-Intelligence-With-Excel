@@ -6,3 +6,5 @@
 🌐 Ready to apply these skills to elevate my professional journey! 🚀
 
 #BusinessIntelligence #ExcelMastery #ContinuousLearning #CertificationAchievement 🏆📈
+
+https://www.linkedin.com/feed/update/urn:li:activity:7150169135543439361/
